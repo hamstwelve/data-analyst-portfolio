@@ -32,7 +32,7 @@ I am open to roles in finance, technology, healthcare, retail, and operations.
 
 ## Contact
 Email: ab.suleman22@gmail.com  
-LinkedIn: linkedin.com/in/abdulhameed-suleiman-2a8112261?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BjWIF%2FWKJTMOw62D1TQnTsg%3D%3D  
-GitHub: github.com/hamstwelve
+LinkedIn: www.linkedin.com/in/abdulhameed-suleiman-2a8112261?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BjWIF%2FWKJTMOw62D1TQnTsg%3D%3D  
+GitHub: www.github.com/hamstwelve
 
 
